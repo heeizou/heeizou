@@ -1,3 +1,4 @@
-![shikanoin-heizou-heizou-shikanoin](https://github.com/user-attachments/assets/66ad9af9-5689-4c7a-8a47-1b56f75b7c60)
+![690b6a18-7c6e-43c0-b99a-a36c2384960f](https://github.com/user-attachments/assets/200a167f-2578-42e7-96cb-76739c96070a)
 
-Heh, it's gonna take a little more wind than that to form a cyclone!
+
+⁠✧
